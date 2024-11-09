@@ -5,6 +5,6 @@
 - 📫 contact via email: music.vnd.vn@gmail.com
 
 <!---
-laducduy01/laducduy01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+l.duc_duy🌨️/l.duc_duy🌨️ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
